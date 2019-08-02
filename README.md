@@ -1,1 +1,0 @@
-# y-nashima.github.io
